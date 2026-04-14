@@ -1,1 +1,1 @@
-# afsal-lubna-nikah-invite
+# wed-card
